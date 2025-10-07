@@ -1,1 +1,1 @@
-A Network Computer student 
+A Network & Computer student 
